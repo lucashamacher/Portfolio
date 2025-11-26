@@ -25,3 +25,6 @@ If you hire me, I’ll treat your project with the same care and discipline I gi
 ## 📫 Contact
 📧 **Email:** lucashamacher21@gmail.com  
 💬 **Discord:** lucash21
+
+## Join My Discord:
+https://discord.gg/2h8WDMdW
